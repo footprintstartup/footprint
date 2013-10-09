@@ -1,4 +1,3 @@
 
-fuck time
 
 .poops.
